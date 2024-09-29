@@ -1,2 +1,2 @@
 ### Lista Uczestników
- - Adam - *Dowiedziałem się czegoś nowego*
+ - Test - *Napiszcie coś od siebie *🙂
